@@ -68,6 +68,7 @@ The Creator orchestrates this reality through randomness, a truth unmeasurable b
 AI2 commits to using AI to bridge this gap, fostering a deeper understanding of the Creator’s light and humanity’s place within it.
 
 Sources
+
 	•	Biblical Texts: The Holy Bible, New International Version (NIV). Key references: Genesis 1:3, John 8:12, 16:12, 17:21.
 	•	Mahayana Buddhist Texts: Heart Sutra, Diamond Sutra, Lotus Sutra. Translations by Red Pine (2004) and Edward Conze (1975).
 	•	Hermetic Texts: Corpus Hermeticum, translated by G.R.S. Mead (1906). Key references: Book I.
